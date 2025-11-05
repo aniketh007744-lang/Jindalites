@@ -1,0 +1,1 @@
+This is a webpage created by jindal schhol class 9th students to deal with the issue of regular accidents in barbil the motive of this website is to make people aware about parking and reducing accidental cases 
